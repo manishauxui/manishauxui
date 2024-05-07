@@ -9,7 +9,7 @@
 
 - 👨‍💻 You can find me here [https://bento.me/mnisha](https://bento.me/mnisha)
 
-- 💬 Ask me about **Anything realated to design or science**
+- 💬 Ask me about **Anything related to design or science**
 
 - 📫 How to reach me **findingnemo17423@gmail.com**
 
